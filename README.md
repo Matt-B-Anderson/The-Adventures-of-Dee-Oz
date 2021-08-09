@@ -1,1 +1,1 @@
-# The-Adventures-of-Dee-Oz
+# It's pronounced the Adventures of "Diaz"
